@@ -1,1 +1,1 @@
-In this report we have found out all the necessary things to increase the sales of the 'Vrinda Sales Store'.
+In this report, we have found all the necessary details to increase the 'Vrinda Sales Store' sales.
